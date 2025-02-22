@@ -1,0 +1,1 @@
+# shoppicresult.github.io
